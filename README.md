@@ -16,7 +16,7 @@
 
 💬 Ask me about **Spring, React, Flutter... or anything [here](https://github.com/Kashyap-10/Kashyap-10/issues)**
 
-⚡ Fact **ESDEATH is best female caracter ever exist **
+⚡ Fact **ESDEATH is best female character ever exist **
 
  </div>
  
